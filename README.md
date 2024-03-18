@@ -1,1 +1,1 @@
-# FlagsDex-PrivacyPolicy
+# FlagsDex Privacy Policy 2024
